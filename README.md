@@ -1,0 +1,2 @@
+# NikiCoin
+BOT NIKI COIN

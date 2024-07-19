@@ -18,8 +18,18 @@ Channel Telegram : <a href="https://t.me/airdrop_ea"> Disini </a>
 <h1>Fitur</h1>
 <ul>
   <li>Bisa suntik / Claim Coin Unlimited</li>
-  <li>Gaskeun aja mumpung masi bisa</li>
+  <li>Gaskeun aja mumpung masi bisa jadiin top GLobal</li>
 </ul>
-
+<img src="https://i.ibb.co.com/qjYc1th/Screenshot-2024-07-19-233603.png" width="600px">
 Jangan lupa untuk join ke channel Telegram saya yang berisi seputar airdrop dan script bot gratis <a href="https://t.me/airdrop_ea"> Disini </a>
 <img src="https://img.shields.io/badge/Status-aktif-brightgreen"/>
+<h3>NIKI COIN</h3>
+<table>
+  <tr>
+    <th><img src="https://i.ibb.co.com/rsNZ8cB/6113753386441620777.jpg" width="300px"></th>
+    <th><img src="https://i.ibb.co.com/G59wf4D/6113753386441620776.jpg" width="300px"></th>
+  </tr>
+</table>
+
+
+
